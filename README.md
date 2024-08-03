@@ -1,6 +1,4 @@
-# This is getting archived due to really not having anything to add here anyome, if this gets patched i will unarchive to fix it
-
-I made this as a joke, so i dont really think someone will use this
+i made this as a joke, so i dont really think someone will use this
 
 in any case, enjoy my kind of garbage work, if this helped you concider sharing this
 
